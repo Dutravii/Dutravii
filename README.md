@@ -8,4 +8,4 @@ Meu nome é Ana, e aqui neste perfil irei anexar todos os meus projetos.
 
 ![](https://tenor.com/bM1T7.gif)
 
-meus projetos © 2024 by Ana Vitoria está licenciado sob CC BY 4.0 
+meus projetos © 2024 by Ana Vitoria está licenciado sob CC BY 4.0
